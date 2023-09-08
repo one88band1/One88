@@ -1,6 +1,6 @@
 # One88
 
-Cập nhật [url=https://one88.band/]One88[/url] đánh giá sòng bạc mới nhất và khám phá thiên đường cá cược với đa dạng các sản phẩm đỉnh cao từ nhà cái One88 đến từ châu Âu
+Cập nhật [One88](https://one88.band/) đánh giá sòng bạc mới nhất và khám phá thiên đường cá cược với đa dạng các sản phẩm đỉnh cao từ nhà cái One88 đến từ châu Âu
 
 - Địa chỉ: 129 Đ. Sư Vạn Hạnh, Phường 3, Quận 10, Hồ Chí Minh
 
